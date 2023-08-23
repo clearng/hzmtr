@@ -1,7 +1,7 @@
 # 海珠地铁
 ## 路线图
-![img](https://img.keliyan.top/file/0d3a4115eca3ecc3d1a4e.jpg)
-[download](https://img.keliyan.top/file/26593908343598e72e455.jpg)
+![img](https://img.keliyan.top/file/3a6987e14a642dcf3ca2b.png)
+[高清版](https://mtr.keliyan.top/routemap.pdf)
 ![img](https://img.keliyan.top/file/166b776850182420f1a76.jpg)
 [download](https://img.keliyan.top/file/166b776850182420f1a76.jpg)
 ## 线网车务状况
