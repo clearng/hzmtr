@@ -6,7 +6,7 @@
 ![img](https://www.z4a.net/images/2024/01/18/_02.png)
 [download](https://www.z4a.net/images/2024/01/18/_02.png)
 ## 线网车务状况
-![查看车务状况](https://img.keliyan.top/file/2d5c1456438d6b769ada8.png)
+![查看车务状况](https://www.z4a.net/images/2024/01/19/e9b530cf48ecdfa97b77cb6afc7c0004.png)
 ## 新闻
 [二沙岛线开通通知2024/1/18](./news/news5)
 [公园线延误通知2023/8/18](./news/news1)
